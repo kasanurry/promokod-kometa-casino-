@@ -4,7 +4,7 @@
 ## Регистрируйся в казино Комета, вводи промокод E100 и забирай бесплатные спины и бонус на первый депозит сразу после подтверждения данных.
 ## Бонусы в Комете по промокоду - 100 FS + 100% бонус на первый депозит.
 
-##[KOMETA CASINO ЗЕРКАЛО](https://linkcasino.ru/kometa_e100)
+## [KOMETA CASINO ЗЕРКАЛО](https://linkcasino.ru/kometa_e100)
 
 
 ![image](https://github.com/user-attachments/assets/75e30a39-d1d7-4742-a2cc-c268571c671e)
